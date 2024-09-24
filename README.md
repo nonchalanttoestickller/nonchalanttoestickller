@@ -5,7 +5,7 @@
 ![Untitled167_20240918115041](https://github.com/user-attachments/assets/2554afca-1ad1-4ec4-9577-2fcf94aebb07)
 
 
-<p align="center">https://open.spotify.com/playlist/6YRdUWpS5NTBNQoQYaCUAq?si=77ZugxZtRImZ4VkKoV2-NA&pi=a-VLRdgeRyTaOy</p>
+<p align="center">[♡](https://open.spotify.com/playlist/6YRdUWpS5NTBNQoQYaCUAq?si=77ZugxZtRImZ4VkKoV2-NA&pi=a-VLRdgeRyTaOy)</p>
 
 <p align="center"> Cyber-Code/ Linking-Soul ; fun names </p>
 
